@@ -1,0 +1,1 @@
+ini adalah script punya dika
