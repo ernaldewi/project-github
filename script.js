@@ -1,0 +1,1 @@
+ini script punya erna
